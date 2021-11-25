@@ -85,7 +85,7 @@ Customer needs and wants are fulfilled through market offerings
 
 
 
-![](C:\Users\Burak\Desktop\Capture.PNG)
+![](Introduction to Marketing/Capture.PNG)
 
 ### Why is it important to a marketer to decide which customer they will serve?
 
@@ -101,7 +101,7 @@ Customer needs and wants are fulfilled through market offerings
 
 
 
-![](C:\Users\Burak\Desktop\Capture2.PNG)
+![](Introduction to Marketing/Capture2.PNG)
 
 ---
 
@@ -125,17 +125,17 @@ Consumers will not buy enough of the firm's products unless the firm undertakes 
 * The selling concept is typically practiced with unsought goods - those that buyers do not normally think of buying, such as life insurance or blood donations.
 * Such aggressive selling, however, carries high risks. It focuses on creating sales transactions rather than on building long term, profitable customer relationships.
 
-![](C:\Users\Burak\Desktop\Capture3.PNG)
+![](Introduction to Marketing/Capture3.PNG)
 
 ---
 
 
 
-![](C:\Users\Burak\Desktop\Capture5.PNG)
+![](Introduction to Marketing/Capture5.PNG)
 
 ---
 
-![](C:\Users\Burak\Desktop\Capture4.PNG)
+![](Introduction to Marketing/Capture4.PNG)
 
 ---
 
@@ -159,7 +159,7 @@ Consumers will not buy enough of the firm's products unless the firm undertakes 
 
 
 
-![](C:\Users\Burak\Desktop\Capture6.PNG)
+![](Introduction to Marketing/Capture6.PNG)
 
 ---
 
@@ -180,11 +180,11 @@ Consumers will not buy enough of the firm's products unless the firm undertakes 
 
 
 
-![](C:\Users\Burak\Desktop\Capture7.PNG)
+![](Introduction to Marketing/Capture7.PNG)
 
 ---
 
-![](C:\Users\Burak\Desktop\Capture8.PNG)
+![](Introduction to Marketing/Capture8.PNG)
 
 ---
 
