@@ -10,7 +10,7 @@
 
 ## Marketing Process
 
-	### > Create Value ***for customers*** and build customer relationships
+### > Create Value ***for customers*** and build customer relationships
 
 * Understand the marketplace and customer needs and wants
 * Design a customer driven marketing strategy
@@ -85,7 +85,7 @@ Customer needs and wants are fulfilled through market offerings
 
 
 
-![](Introduction to Marketing/Capture.PNG)
+![](https://raw.githubusercontent.com/burakkececi/Lecture-Notes/main/Introduction%20to%20Marketing/assets/images/Capture.PNG)
 
 ### Why is it important to a marketer to decide which customer they will serve?
 
@@ -101,7 +101,7 @@ Customer needs and wants are fulfilled through market offerings
 
 
 
-![](Introduction to Marketing/Capture2.PNG)
+![](https://raw.githubusercontent.com/burakkececi/Lecture-Notes/main/Introduction%20to%20Marketing/assets/images/Capture2.PNG)
 
 ---
 
@@ -125,17 +125,17 @@ Consumers will not buy enough of the firm's products unless the firm undertakes 
 * The selling concept is typically practiced with unsought goods - those that buyers do not normally think of buying, such as life insurance or blood donations.
 * Such aggressive selling, however, carries high risks. It focuses on creating sales transactions rather than on building long term, profitable customer relationships.
 
-![](Introduction to Marketing/Capture3.PNG)
+![](https://raw.githubusercontent.com/burakkececi/Lecture-Notes/main/Introduction%20to%20Marketing/assets/images/Capture3.PNG)
 
 ---
 
 
 
-![](Introduction to Marketing/Capture5.PNG)
+![](https://raw.githubusercontent.com/burakkececi/Lecture-Notes/main/Introduction%20to%20Marketing/assets/images/Capture5.PNG)
 
 ---
 
-![](Introduction to Marketing/Capture4.PNG)
+![](https://raw.githubusercontent.com/burakkececi/Lecture-Notes/main/Introduction%20to%20Marketing/assets/images/Capture4.PNG)
 
 ---
 
@@ -159,7 +159,7 @@ Consumers will not buy enough of the firm's products unless the firm undertakes 
 
 
 
-![](Introduction to Marketing/Capture6.PNG)
+![](https://raw.githubusercontent.com/burakkececi/Lecture-Notes/main/Introduction%20to%20Marketing/assets/images/Capture6.PNG)
 
 ---
 
@@ -180,11 +180,11 @@ Consumers will not buy enough of the firm's products unless the firm undertakes 
 
 
 
-![](Introduction to Marketing/Capture7.PNG)
+![](https://raw.githubusercontent.com/burakkececi/Lecture-Notes/main/Introduction%20to%20Marketing/assets/images/Capture7.PNG)
 
 ---
 
-![](Introduction to Marketing/Capture8.PNG)
+![](https://raw.githubusercontent.com/burakkececi/Lecture-Notes/main/Introduction%20to%20Marketing/assets/images/Capture8.PNG)
 
 ---
 
